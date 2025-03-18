@@ -1,1 +1,1 @@
-https://.github.io/Laricas-burguers-card-pio-/
+https://beatrizzmenezes.github.io/Laricas-burguers-card-pio-/
